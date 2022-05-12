@@ -1,10 +1,14 @@
-- 👋 Hi, I’m @vinaypandey2017
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+👋 Hi, I’m Vinay Pandey
 
-<!---
-vinaypandey2017/vinaypandey2017 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+👀 I’m interested in Tech,Entrepreneurship and Problem Solving.
+
+🌱 I’m currently Working On my Backend Skill and Blockchain Technology.
+
+💞️ I’m looking to Join an Organisation where i can challange myself Every day & skill up By Working On projects.
+
+📫 **How To reach Me :-
+Mobile:7837004491
+📧 Email:- vinaypandey0398@gmail.com
+Linkedin: https://www.linkedin.com/in/vinay-pandey-b16449171/
+
+**Thanks for Visiting **
