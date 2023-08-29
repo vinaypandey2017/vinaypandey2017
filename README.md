@@ -9,6 +9,6 @@
 📫 **How To reach Me :-
 Mobile:7837004491
 📧 Email:- vinaypandey0398@gmail.com
-Linkedin: https://www.linkedin.com/in/vinay-pandey-b16449171/
+Linkedin: https://www.linkedin.com/in/vinay-pandey2023/
 
 **Thanks for Visiting **
