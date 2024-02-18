@@ -4,7 +4,6 @@
 
 🌱 I’m currently Working On my Backend Skill.
 
-💞️ I’m looking to Join an Organisation where I can challenge myself Every day & skill up By Working On projects and Contributing the Same.
 
 📫 **How To reach Me:-
 Mobile:78
